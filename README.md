@@ -25,10 +25,12 @@ Music artists i really like (⁠☆⁠▽⁠☆⁠): [Jack Off Jill](https://you
 
 my channel:
 
-[<img width="1280" height="401" alt="Screenshot_20260718-173821" src="https://github.com/user-attachments/assets/879c7d16-c960-47db-9f2d-2d07de32dce2" />](https://youtube.com/@doggydarby?si=MBsrJid7ANEZtwp5)
+[<img width="1280" height="473" alt="Screenshot_20260721-180636" src="https://github.com/user-attachments/assets/0aa1e0c0-233c-4833-a94a-b08edbe69ae5" />
+](https://youtube.com/@doggydarby?si=MBsrJid7ANEZtwp5)
 
 
 my best friend's channel:
 
 
-[<img width="800" height="507" alt="Screenshot_20260718-174011 (1)" src="https://github.com/user-attachments/assets/be99fd76-4d64-4bbe-9de1-7b96ba4fdf6f" />](https://youtube.com/channel/UCDJrgU-zb2lrGqYxCuZnf1g?si=BoH80EqBH1_Cfdt9)# ...
+[<img width="1280" height="505" alt="Screenshot_20260721-180655" src="https://github.com/user-attachments/assets/6a591431-8932-461d-af8b-5bb10c02a3a8" />
+](https://youtube.com/channel/UCDJrgU-zb2lrGqYxCuZnf1g?si=BoH80EqBH1_Cfdt9)# ...
