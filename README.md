@@ -1,4 +1,5 @@
-<img width="591" height="530" alt="3e5f882ab91f4ed16b7faa5370f900e6" src="https://github.com/user-attachments/assets/51fbeb56-33b0-4cde-989b-26bae2466fda" />
+<img width="736" height="736" alt="3969d798c5569153a7a5059a0f35932c (1)" src="https://github.com/user-attachments/assets/99915d06-3781-4d28-ae52-407a0d14d118" />
+
 
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
@@ -7,7 +8,7 @@ __Darby/Guts__           ,      Any/It           , _Agender_ and fictoromantic
 
 Misophonia + *Autism*             , black irl (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
 
-I'm mostly cosplaying as sanji lol
+Perona, Wapol and Eclipse kin
 
 No dni, if I don't like you, i block.
 
