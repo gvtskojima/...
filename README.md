@@ -27,8 +27,8 @@ Music artists i really like (⁠☆⁠▽⁠☆⁠): [Jack Off Jill](https://you
 
 my channel:
 
-[<img width="1280" height="473" alt="Screenshot_20260721-180636" src="https://github.com/user-attachments/assets/0aa1e0c0-233c-4833-a94a-b08edbe69ae5" />
-](https://youtube.com/@doggydarby?si=MBsrJid7ANEZtwp5)
+[<img width="800" height="383" alt="Screenshot_20261120-075454" src="https://github.com/user-attachments/assets/6272e65f-f3bf-489c-9c83-f9df0a1a7fae" />](https://www.youtube.com/@star_no_star)
+
 
 
 my best friend's channel:
