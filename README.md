@@ -34,5 +34,7 @@ my channel:
 my best friend's channel:
 
 
-[<img width="1280" height="505" alt="Screenshot_20260721-180655" src="https://github.com/user-attachments/assets/6a591431-8932-461d-af8b-5bb10c02a3a8" />
-](https://youtube.com/channel/UCDJrgU-zb2lrGqYxCuZnf1g?si=BoH80EqBH1_Cfdt9)# ...
+[<img width="800" height="1069" alt="Screenshot_20261120-075653" src="https://github.com/user-attachments/assets/08491fb0-fb47-49d9-81ad-0d2c9e28d70f" />](https://youtube.com/channel/UCDJrgU-zb2lrGqYxCuZnf1g?si=VtJjewDrY9BKCR-C)
+
+
+she changes her pfp a lot so its best to keep the photo as her bio 
