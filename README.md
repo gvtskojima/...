@@ -3,7 +3,7 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-__Darby__           ,      Any/It           , _Agender_ and fictoromantic
+__Darby/Guts__           ,      Any/It           , _Agender_ and fictoromantic
 
 Misophonia + *Autism*             , black irl (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
 
